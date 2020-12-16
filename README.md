@@ -1,3 +1,3 @@
-# Universal-attraction
-universal attraction mantra
-om kleem 
+# सामान्य अस्तिवाचिन्
+सार्वत्रिक पतनशीलता मन्त्र
+ऊँ क्लीं 
