@@ -2,7 +2,5 @@
 सार्वत्रिक पतनशीलता मन्त्र
 ऊँ क्लीं
 सम
-പണത്തിന്റെ ഉറവിടം അടുക്കള 
-source and destination 
-
-
+പണത്തിന്റെ ഉറവിടം good 
+source and destination
